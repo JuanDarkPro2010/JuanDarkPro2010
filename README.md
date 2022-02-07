@@ -1,7 +1,7 @@
 - 👋 Hola,Soy JuanDarkPro2010  y ni se porque estoy aqui
 - 👀 Me dio Curiosidad xd
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ningun lado
+- 🌱 Pero igual ta chido
+- 💞️ No colaborare con nadie (si esque alguien me lo vida :v)
 - 📫 Y nada mas xddddd
 
 <!---
